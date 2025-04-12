@@ -26,7 +26,7 @@
 
 ## 📫 Let's Connect
 
-- LinkedIn: [linkedin.com/in/shreya-jaiswal](https://linkedin.com/in/shreya-jaiswal)
+- LinkedIn: www.linkedin.com/in/shreyajaiswal11
 - Email: shreyajaiswal589@gmail.com
 
 ---
