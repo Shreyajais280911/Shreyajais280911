@@ -27,8 +27,7 @@
 ## 📫 Let's Connect
 
 - LinkedIn: [linkedin.com/in/shreya-jaiswal](https://linkedin.com/in/shreya-jaiswal)
-- Email: shreya@example.com *(replace with your actual email)*
-- Portfolio: [Coming Soon...]
+- Email: shreyajaiswal589@gmail.com
 
 ---
 
